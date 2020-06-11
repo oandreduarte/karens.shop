@@ -1,6 +1,6 @@
 ## Howdy Folks
 
-![Yass](/karen1.jpeg)
+![Yass](/karen1.jpg)
 
 
 
