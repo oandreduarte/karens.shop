@@ -1,11 +1,11 @@
-## Howdy Folks
+## The manager is coming soon
 
 ![Yass](/karen1.jpg)
 
 
 
-For more info on this domain, contact me at oandreduarte@gmail.com
-:flushed:
+Ultra Karen has you covered
+
 
 
 
