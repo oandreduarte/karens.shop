@@ -4,7 +4,7 @@
 
 
 
-Ultra Karen has you covered
+Ultra Karen approves this website
 
 
 
