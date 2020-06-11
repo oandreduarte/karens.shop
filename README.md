@@ -4,7 +4,7 @@
 
 
 
-Ultra Karen approves this website
+Ultra Karen approves this
 
 
 
